@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MuhammedJaseel
-- 👀 I’m interested in All risky programming langages
-- 🌱 I’m currently learning Anythind
+- 👀 I’m interested in all risky programming langages
+- 🌱 I’m currently learning anything
 - 💞️ I’m looking to collaborate on big projects
 - 📫 How to reach me => whatsapp me +91 9544013463
 
